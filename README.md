@@ -9,7 +9,7 @@
 
 - ⚡ Fun fact **I fuel my late-night coding sessions with heavy metal and house music, and I'm currently trying to hit new PRs in calisthenics.**
 
-- 🌱 **I’m iteratively improving my github profile so the next time you stalk me, you'll be surprised**
+- 🌱 **I’m iteratively improving my github profile so the next time you stalk me, you'll be surprised ✌️**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
